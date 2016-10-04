@@ -11,3 +11,6 @@ Eric Kriger - 201160084
 
 Rhenan Konrad - 201503363
 
+Affonso Antônio Giesel Lima - 201503327
+
+Erick Vinícius Vieira e Sousa - 201515568
