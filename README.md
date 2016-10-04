@@ -14,3 +14,5 @@ Rhenan Konrad - 201503363
 Affonso Antônio Giesel Lima - 201503327
 
 Erick Vinícius Vieira e Sousa - 201515568
+
+Benedito Cardoso dos Santos Neto - 201000186
